@@ -1,6 +1,6 @@
 ### Hi Lorena 👋
 
-Desde 2019 aprendo sobre o universo Front End. 
+Desde 2020 aprendo sobre o universo Front End. 
 
 Algumas curiosidades sobre mim...
 
